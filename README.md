@@ -1,3 +1,3 @@
 # :computer: Program Engineering Course :male_detective:
 
-https://www.reddit.com/r/CatGifs/comments/640py3/meet_the_new_it_guy_xpost_raww/?st=j180my0k&sh=2230295e
+![giphy](https://user-images.githubusercontent.com/31736716/174124187-ec90e3eb-16db-4f90-960b-9dabf31c3cff.gif)
